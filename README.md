@@ -1,2 +1,2 @@
 # GEE_Global_NPP
-![](Demo.mp4)
+![](People and Nature - 2020 - Pereira - Developing multiscale and integrative nature people scenarios using the Nature Futures.jpg)
